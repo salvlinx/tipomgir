@@ -1,4 +1,4 @@
-<h1>Tipobet Giriş Adres ile Bahis Dünyasına Hemen Katıl</h1>
+<h1>Tipobet Giriş Adres ile Bahis Dünyasına Hemen Katıl !</h1>
 <p>
   Tipobet, uzun yıllardır Türkiye pazarında aktif olan, spor bahisleri ve casino alanında zengin içeriğe sahip köklü bir platformdur. 
   Güvenilir altyapısı ve kullanıcı dostu arayüzü sayesinde her seviyeden oyuncuya hitap etmektedir. 
